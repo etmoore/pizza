@@ -8,6 +8,8 @@ collaborator—if you ask and you're not some kind of deep-dish-eating monster.
 #### Phoenix
 
 * [Pizzeria Bianco](http://www.pizzeriabianco.com/) - [623 E. Adams St](#address)
+* [Cibo](http://www.cibophoenix.com/) - [603 N 5th Ave](#address)
+* [The Parlor](https://theparlor.us/) - [1916 E Camelback Rd](#address)
 
 ### California
 
